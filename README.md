@@ -1,6 +1,8 @@
 ![ug](https://files.catbox.moe/6ralv9.png)
 **Heyy!! my names Bo !**
 
+*he / him*
+
 I really like Jake Gyllenhaal im literally him. I like donnie darko, brokeback mountain, Highway ( 2002 ), Bubble Boy, The Day After Tomorrow, October Sky, basically any movie with Jake Gyllenhaal.
 
 Feel free to interact with me, I'm mostly **W2I** so keep that in mind.
