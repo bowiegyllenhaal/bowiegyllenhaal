@@ -7,7 +7,7 @@ I really like Jake Gyllenhaal im literally him. I like donnie darko, brokeback m
 
 Feel free to interact with me, I'm mostly **W2I** so keep that in mind.
 
-If you're a **proshipper** of ANY kind, dni. I don't care how old you are or what kind of weirdo you are, that shit makes me uncomfortable.
+If you're a **proshipper** of ANY kind, dni. It makes me uncomfortable.
 
 i have an amazing gf https://github.com/newyorkscannibal , uagahgdshys i love her sm
 <p align="center">
