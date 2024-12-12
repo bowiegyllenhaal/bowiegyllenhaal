@@ -12,9 +12,9 @@ If you're a **proshipper** of ANY kind dni thanks 😁😁💖💖💖💖
 i have an amazing gf https://github.com/gretchenross , i love u baby
 
 i like other things too i like red dead redemption, 80's movies, history, art, writing, and poetry ^_^
-<p align="center">
-  <img src="https://i.pinimg.com/736x/13/5f/de/135fde70e39a0da0cde01fd77dff8bf6.jpg" />
-</p>
+[![Watch the video](https://img.youtube.com/vi/QtTR-_Klcq8/maxresdefault.jpg)](https://youtu.be/QtTR-_Klcq8)
+
+### [](https://youtu.be/QtTR-_Klcq8)
 
 ![ug](https://files.catbox.moe/w9qkji.png)
 
