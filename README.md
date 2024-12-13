@@ -12,9 +12,8 @@ If you're a **proshipper** of ANY kind dni thanks 😁😁💖💖💖💖
 i have an amazing gf https://github.com/gretchenross , i love u baby
 
 i like other things too i like red dead redemption, 80's movies, history, art, writing, and poetry ^_^
-[![Watch the video](https://img.youtube.com/vi/QtTR-_Klcq8/maxresdefault.jpg)](https://youtu.be/QtTR-_Klcq8)
 
-### [](https://youtu.be/QtTR-_Klcq8)
+oh yeah idgaf if u take inspo from my skins u can literally copy them for all i care 😭🙏
 
 ![ug](https://files.catbox.moe/w9qkji.png)
 
