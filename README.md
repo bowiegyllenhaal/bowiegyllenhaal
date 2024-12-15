@@ -15,7 +15,8 @@ i like other things too i like red dead redemption, 80's movies, history, art, w
 
 oh yeah idgaf if u take inspo from my skins u can literally copy them for all i care 😭🙏
 
-https://github.com/user-attachments/assets/e39de1ee-8d11-461f-b14d-17dc48562ea0
+https://github.com/user-attachments/assets/ff17595b-65b2-4008-aa29-51f007f2f1cf
+
 
 
 ![ug](https://files.catbox.moe/w9qkji.png)
