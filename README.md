@@ -13,7 +13,6 @@ i have an amazing gf https://github.com/gretchenross , i love u baby
 
 i like other things too i like red dead redemption, 80's movies, history, art, writing, and poetry ^_^
 
-oh yeah idgaf if u take inspo from my skins u can literally copy them for all i care 😭🙏
 
 https://github.com/user-attachments/assets/ff17595b-65b2-4008-aa29-51f007f2f1cf
 
