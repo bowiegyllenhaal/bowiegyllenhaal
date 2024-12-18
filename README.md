@@ -14,9 +14,7 @@ i have an amazing gf https://github.com/gretchenross , i love u baby
 i like other things too i like red dead redemption, 80's movies, history, art, writing, and poetry ^_^
 
 
-<p align="center">
-  <img width="600" height="600" src="https://i.pinimg.com/736x/5c/ab/d1/5cabd1c8c86238e0a9e01a22fd10ab13.jpg">
-</p>
+https://github.com/user-attachments/assets/9879166a-fda7-48aa-8145-d6e4d3765ec2
 
 
 
