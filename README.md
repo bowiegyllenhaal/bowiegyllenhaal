@@ -3,7 +3,7 @@
 
 *he / him*
 
-I really like Jake Gyllenhaal im literally him. I like **Donnie Darko**, **Brokeback Mountain**, Southpaw, Love & Other Drugs, **Zodiac**, Jarhead, Road House, Highway, **Bubble Boy**, The Day After Tomorrow, October Sky, basically any movie with Jake Gyllenhaal.
+I really like Jake Gyllenhaal im literally him. I like **Donnie Darko**, **Brokeback Mountain**, Southpaw, Love & Other Drugs, **Zodiac**, Nightcrawler, Jarhead, Road House, Highway, **Bubble Boy**, The Day After Tomorrow, October Sky, basically any movie with Jake Gyllenhaal.
 
 im fine with C+H , even if i dont u. unless im with friends
 
