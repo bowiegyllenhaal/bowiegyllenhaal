@@ -5,7 +5,7 @@
 
 I really like Jake Gyllenhaal im literally him. I like **Donnie Darko**, **Brokeback Mountain**, Southpaw, Love & Other Drugs, **Zodiac**, Jarhead, Road House, Highway, **Bubble Boy**, The Day After Tomorrow, October Sky, basically any movie with Jake Gyllenhaal.
 
-Feel free to interact with me, I'm mostly **W2I** so keep that in mind.
+im fine with C+H , even if i dont u. unless im with friends
 
 If you're a **proshipper** of ANY kind dni thanks 😁😁💖💖💖💖
 
