@@ -11,7 +11,7 @@ If you're a **proshipper** of ANY kind dni thanks 😁😁💖💖💖💖
 
 i have an amazing gf https://github.com/gretchenross , i love u baby
 
-i like other things too i like red dead redemption, House MD, 80's movies, history, art, writing, and poetry ^_^
+i like other things too i like red dead redemption, House MD, Lana Del Rey, 80's movies, history, art, writing, and poetry ^_^
 
 
 https://github.com/user-attachments/assets/77f098ce-c6c6-4f3e-a31f-f109b23ff253
