@@ -13,7 +13,7 @@ swifties dni ^_^
 
 i have an amazing gf https://github.com/gretchenross , i love u baby
 
-i like other things too i like red dead redemption, House MD, Lana Del Rey, 80's movies, history, art, writing, and poetry !
+i like other things too i like red dead redemption, House MD, Blink-182, 80's movies, 2000's music, history, art, writing, and poetry !
 
 
 
