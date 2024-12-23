@@ -14,7 +14,9 @@ i have an amazing gf https://github.com/gretchenross , i love u baby
 i like other things too i like red dead redemption, House MD, Lana Del Rey, 80's movies, history, art, writing, and poetry ^_^
 
 
-https://github.com/user-attachments/assets/77f098ce-c6c6-4f3e-a31f-f109b23ff253
+
+![0144e4bd20b84ee5cd7fd8173cbe49b2](https://github.com/user-attachments/assets/ef002cca-0dad-4ba8-84da-5e690516f3be)
+
 
 
 ![ug](https://files.catbox.moe/w9qkji.png)
