@@ -1,4 +1,4 @@
-![Red 1](https://files.catbox.moe/oikfl4.gif) ![green 1](https://files.catbox.moe/37ur9r.png) ![2](https://files.catbox.moe/jco0if.png) ![3](https://files.catbox.moe/9s6r6c.png) ![4](https://files.catbox.moe/30lxwy.png) ![5](https://files.catbox.moe/dklyx3.gif) ![blue 1](https://files.catbox.moe/68pu6n.gif) ![2](https://files.catbox.moe/fi8wxy.gif) ![black 1](https://files.catbox.moe/ibx91k.gif) ![ug](https://blinkies.cafe/b/blinkiesCafe-pw.gif) ![ug](https://blinkies.cafe/b/blinkiesCafe-YV.gif)
+![Red 1](https://files.catbox.moe/oikfl4.gif) ![green 1](https://files.catbox.moe/37ur9r.png) ![2](https://files.catbox.moe/jco0if.png) ![3](https://files.catbox.moe/9s6r6c.png) ![4](https://files.catbox.moe/30lxwy.png) ![5](https://files.catbox.moe/dklyx3.gif) ![blue 1](https://files.catbox.moe/68pu6n.gif) ![2](https://files.catbox.moe/fi8wxy.gif) ![black 1](https://files.catbox.moe/ibx91k.gif) ![ug](https://blinkies.cafe/b/blinkiesCafe-3g.gif) ![ug](https://blinkies.cafe/b/blinkiesCafe-YV.gif)
 
 ![ug](https://files.catbox.moe/6ralv9.png) 
 **Heyy!! my names Bo !**
