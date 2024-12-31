@@ -3,7 +3,7 @@
 ![ug](https://files.catbox.moe/6ralv9.png) 
 **Heyy!! my names Bo !**
 
-*he / him*
+*he / him, 7teen*
 
 I really like Jake Gyllenhaal im literally him. I like **Donnie Darko**, **Brokeback Mountain**, Southpaw, Love & Other Drugs, **Zodiac**, Nightcrawler, Jarhead, Road House, Highway, **Bubble Boy**, The Day After Tomorrow, October Sky, basically any movie with Jake Gyllenhaal.
 
