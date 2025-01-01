@@ -4,7 +4,8 @@
 
 
 
-![ug](https://files.catbox.moe/6ralv9.png)
+![3yobly (1)](https://github.com/user-attachments/assets/a90b8299-2f4f-456b-966e-14830e0c494f)
+
 
 **Heyy!! my names Bo !**
 
@@ -28,7 +29,8 @@ i like other things too i like red dead redemption, House MD, Blink-182, 80's mo
 
 
 
-![ug](https://files.catbox.moe/w9qkji.png)
+
+![mroxst](https://github.com/user-attachments/assets/31968cd6-a9dc-45e2-85ea-00dcc5349374)
 
 
 
