@@ -25,7 +25,6 @@ i like other things too i like red dead redemption, House MD, Blink-182, 80's mo
 
 
 
-![0144e4bd20b84ee5cd7fd8173cbe49b2](https://github.com/user-attachments/assets/ef002cca-0dad-4ba8-84da-5e690516f3be)
 
 
 
