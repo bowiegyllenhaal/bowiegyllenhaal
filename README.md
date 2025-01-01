@@ -16,7 +16,7 @@ im fine with C+H , even if i dont u. unless im with friends
 
 If you're a **proshipper** of ANY kind dni thanks 😁😁💖💖💖💖
 
-swifties dni ^_^
+swifties dni /j
 
 i have an amazing gf https://github.com/gretchenross , i love u baby
 
