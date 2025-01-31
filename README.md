@@ -21,8 +21,6 @@ If you're a **proshipper** of ANY kind dni thanks 😁😁💖💖💖💖
 
 swifties dni /j
 
-i have an amazing gf https://github.com/gretchenross , i love u baby
-
 i like other things too i like red dead redemption, House MD, Blink-182, 80's movies, 2000's music, history, art, writing, and poetry !
 
 
