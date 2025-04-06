@@ -9,7 +9,7 @@
 ![3yobly (1)](https://github.com/user-attachments/assets/a90b8299-2f4f-456b-966e-14830e0c494f)
 
 
-**Heyy!! my names Bo !**
+**Heyy!! my names Holden / Bowie !**
 
 *he / him, 7teen*
 
@@ -17,19 +17,11 @@ I really like Jake Gyllenhaal im literally him. I like **Donnie Darko**, **Broke
 
 im fine with C+H , even if i dont u. unless im with friends
 
-If you're a **proshipper** of ANY kind dni thanks 😁😁💖💖💖💖
+proship dni tanks
 
-swifties dni /j
 
 i like other things too i like red dead redemption, House MD, Blink-182, 80's movies, 2000's music, history, art, writing, and poetry !
 
-
-
-
-
-
-
-![mroxst](https://github.com/user-attachments/assets/31968cd6-a9dc-45e2-85ea-00dcc5349374)
 
 
 
