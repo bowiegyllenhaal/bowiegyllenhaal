@@ -9,19 +9,9 @@
 ![3yobly (1)](https://github.com/user-attachments/assets/a90b8299-2f4f-456b-966e-14830e0c494f)
 
 
-**Heyy!! my names Holden / Bowie !**
-
-*he / him, 7teen*
-
-I really like Jake Gyllenhaal im literally him. I like **Donnie Darko**, **Brokeback Mountain**, Southpaw, Love & Other Drugs, **Zodiac**, Nightcrawler, Jarhead, Road House, Highway, **Bubble Boy**, The Day After Tomorrow, The Good Girl, October Sky, basically any movie with Jake Gyllenhaal.
-
-im fine with C+H , even if i dont u. unless im with friends
-
-proship dni tanks
 
 
-i like other things too i like red dead redemption, House MD, Blink-182, 80's movies, 2000's music, history, art, writing, and poetry !
-
+![mroxst](https://github.com/user-attachments/assets/3b21fb2c-7a20-4c3e-9c67-37add3e39ec0)
 
 
 
