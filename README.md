@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="300" height="300" src="https://i.pinimg.com/736x/8f/46/0f/8f460f7b910ed3cc502a2f8ec23704a9.jpg">
+  <img width="200" height="200" src="https://i.pinimg.com/736x/8f/46/0f/8f460f7b910ed3cc502a2f8ec23704a9.jpg">
 </p>
 
 ![3yobly (1)](https://github.com/user-attachments/assets/a90b8299-2f4f-456b-966e-14830e0c494f)
